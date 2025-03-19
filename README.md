@@ -1,3 +1,3 @@
-MITO2TomiHaru
+MI7O/TomiHaru.
 
-twitter:https://twitter.com/TomiHaruN
+mitosaba.net or mitot.net
